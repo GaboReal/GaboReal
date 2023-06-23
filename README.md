@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GaboReal
+- 👀 I’m interested in videogames development
+- 🌱 I’m currently learning coding from cero
+- 💞️ I’m looking to collaborate for free in any proyect that helps me learn more, I am a full time worker so I only have a few hours a day to coding
+-  My native language is Spanish and German, although I also speak English.
